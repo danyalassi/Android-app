@@ -1,0 +1,1 @@
+This app is on beta if you want play click on the index to play pleas note that you cant do more it open 
